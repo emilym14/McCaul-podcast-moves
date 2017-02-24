@@ -1,28 +1,46 @@
 # Common moves in podcasting—
 
-## <u>Genre of choice:</u>
+## <u>Podcast genre of choice:</u>
 
--	Christian
+-	*Spiritual-Christian*
 
-## <u>Two Titles:</u>
+## <u>Two Podcast Titles:</u>
 
--	The Human Condition by Bret Johnson
--	The Work of Christ by Bret Johnson
+-	*[The Human Condition by Bret Johnson](http://www.vbcradford.com/delightful-doctrine)*
+-	*[The Work of Christ by Bret Johnson](http://www.vbcradford.com/delightful-doctrine)*
 
 ## <u>Moves:</u>
 
-### Organization
+### 1. Organization
 
-1. Pattern
+- *Pattern*
 
-### Style
+jdkfjdlfjsdlkfjdslfdjsfkldsjkl
 
-1. Sound
--	Additions
--	FX
+### 2. Style
 
-### Narrative types
+- *Sound*
 
-1. Interview
--	Narration
--	Archival material
+fjdfjdfldlfjfsdlfjdsfldsjfldksfjdslfdsj
+
+- *Additions*
+
+jfldjfkldfjdsklfjdslkfdjflds
+
+-	*FX*
+
+djfdklfjdsklfdjfldj
+
+### 3. Narrative types
+
+- *Interview*
+
+jdklfjdklfdj
+
+-	*Narration*
+
+kfjdsklfjdlkfdjsfl
+
+-	*Archival material*
+
+kfjdfkldjfkldsfjdkljfkldsf
