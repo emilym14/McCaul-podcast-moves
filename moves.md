@@ -1,32 +1,28 @@
-# Life is pretty
+# Common moves in podcasting—
 
-paragraph jkdfdlfjd fdjlfdjkd, dfjkdflakdlalk aslkakjsaklakaskjfdfd
-fdklfjdlfsldafjldasjfasfjlasjfaldad
-fajkdljkdflakafalkjallkdfkldfkdlfldkfdlkdajkalkjafjkadkflafaklaljad
-afjlkfjdlfkdjflfdklfdjlfdfkldfkdlfdflkdsfkdlfjdfj fjdkljfaklfklafaajf
-klfajdfjdklfjdlfjdlfjdlfjdlfjdlfjdfjdlfd dfdfjjdffkddfkldaklklasfkla.
+## <u>Genre of choice:</u>
 
-## Life is bad
+-	Christian
 
-- Life
-- Monkeys
+## <u>Two Titles:</u>
 
-## Babies smell
+-	The Human Condition by Bret Johnson
+-	The Work of Christ by Bret Johnson
 
-1. Yes
-2. No
-3. Maybe
+## <u>Moves:</u>
 
+### Organization
 
-# Moves on podcasting
+1. Pattern
 
-jflkdfjkldsfjdklfjkfldsjfsdfdkflsfjkldj
+### Style
 
-# Monkeys are sweet
+1. Sound
+-	Additions
+-	FX
 
-#### Structure
+### Narrative types
 
-fjklfjdksdljjldkas
-
-- fjkdfdsk
-- fjkdsajd
+1. Interview
+-	Narration
+-	Archival material
